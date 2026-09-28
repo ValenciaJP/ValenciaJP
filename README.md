@@ -21,6 +21,8 @@
 ---
 
 📫 **Contacto**
-- 💼 [LinkedIn](TU_LINK_DE_LINKEDIN_AQUI)
+- 💼 [LinkedIn](www.linkedin.com/in/juan-pablo-valencia-valencia-66a232360
+
+)
 - 📧 Disponible para oportunidades de prácticas y proyectos colaborativos.
 
